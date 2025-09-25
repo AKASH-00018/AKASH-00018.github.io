@@ -1,1 +1,2 @@
-[Akash_Wankhede_internship.pdf](https://github.com/user-attachments/files/22520420/Akash_Wankhede_internship.pdf)
+[Akash-wankhede-Resume.pdf](https://github.com/user-attachments/files/22542889/Akash-wankhede-Resume.pdf)
+
